@@ -8,7 +8,7 @@ Descubre nuestra amplia selección de eventos deportivos, desde fútbol y balonc
 
 Como nuevo jugador, aprovecha nuestro generoso bono de bienvenida y promociones exclusivas. La plataforma Betmaster está optimizada para dispositivos móviles, permitiéndote jugar y apostar desde cualquier lugar y en cualquier momento.
 
-betmaster
+# <a href="https://betmaster-mx.mx" alt="Betmaster">Betmaster</a>
 
 betmaster app
 
